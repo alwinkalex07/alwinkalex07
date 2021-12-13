@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @alwinkalex07
 - 👀 I’m interested in coding
-- 🌱 I’m currently learning something specia                          
+- 🌱 I’m currently learning something special                          
 - 📫 you can teach me with my website
