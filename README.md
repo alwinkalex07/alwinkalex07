@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @alwinkalex07
 - 👀 I’m interested in coding
-- 🌱 I’m currently learning something specia                          y
+- 🌱 I’m currently learning something specia                          
 - 📫 you can teach me with my website
